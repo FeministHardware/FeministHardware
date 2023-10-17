@@ -29,4 +29,4 @@ Language: English
 Limited to 12 participants.
 SOLD OUT
 
-Patrícia J. Reis & Stefanie Wuschitz are both media artists and researchers based in Vienna (AT) holding a post-doc position at the Academy of Fine Arts in Vienna, as the main researchers of the project FEMINIST HACKING: BUILDING CIRCUITS AS AN ARTISTIC PRACTICE – an international art-based research project, which proposes a strategy and method for empathic, eco-sen
+Patrícia J. Reis & Stefanie Wuschitz are both media artists and researchers based in Vienna (AT) holding a post-doc position at the Academy of Fine Arts in Vienna, as the main researchers of the project FEMINIST HACKING: BUILDING CIRCUITS AS AN ARTISTIC PRACTICE – an international art-based research project financed by the Austrian Science Fund (FWF)
